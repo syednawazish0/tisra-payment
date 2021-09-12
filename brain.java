@@ -1,2 +1,2 @@
-- An empty mind is the devil's workshop.
+- An empty mind is the devil's Workshop.
 - Mentoring is a brain to pick, an ear to listen, and a push in the right direction.
